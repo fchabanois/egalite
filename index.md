@@ -16,18 +16,23 @@ Un autre jour, à une pièce de théatre. Une affiche présente une femme PDG su
 Un publicité passe à la TV, avec une femme au volant.
 
 - _Oh maman regarde ! Y a une femme qui conduit !_
-(il y a des femmes qui conduisent dans mon entourage, mais au fil des années, à force de laisser le volant à leurs époux, elles n'ont plus du tout conduit et n'oseront plus le faire).
+
+(il y a des femmes qui ont conduit dans mon entourage, mais au fil des années, à force de laisser le volant à leurs époux car pas à l'aise avec la nouvelle voitue, pas la peine... elles ont arreté).
 
 Lors d'un comité entre CTOs. Je suis quasiment la seule femme. Et pas à l'aise. Je vois quelques autres femmes. Et me surprend à penser que ce sont certainement des assistantes ou membre du comité d'organisation (j'avais raison....). 
 
 
-Je n'ai compris que récemment l'intérêt d'avoir plus de représentations de femmes en role modèle. Leurs absences laissent croire qu'il n'est pas possible pour une fille de devenir Pilote, Pirate, PDG, Astronaute, Chirurgienne, ingénieure, Directrice technique, tout ce qu'elle a envie d'être. L'inverse aussi est vrai : aujourd'hui, c'est difficile pour un garçon de devenir Assistant sociale, Sage-Femme, Aide-soignant, Agent d'entretien, Secrétaire. Au passage ce sont des jobs mal payés mais c'est un autre sujet.
+Je n'ai compris que récemment l'intérêt d'avoir plus de représentations de femmes en role modèle. Leurs absences laissent croire qu'il n'est pas possible pour une fille de devenir Pilote, Pirate, PDG, Astronaute, Chirurgienne, Ingénieure, Directrice technique. L'inverse aussi est vrai, peu de garçons se voient devenir Assistant sociale, Sage-Femme, Aide-soignant, Agent d'entretien, Secrétaire. Au passage ce sont des jobs peu reconnus et mal payés, mais c'est un autre débat.
 
-J'ai eu des difficultés à trouver des livres pour enfants qui ne confortaient pas les filles dans des rôles terriblement passifs (j'attends qu'un homme veuille bien être avec moi et alors je serai heureuse) ou juste anti princesse, où la fille prend les choses en mains et l'homme n'a rien à dire. Cela a du mérite d'aller dans l'autre extrême mais ce n'est pas non plus le modèle que je vise.
+J'ai eu des difficultés à trouver des livres pour enfants qui ne confortaient pas les filles dans des rôles terriblement passifs (_j'attends qu'un homme veuille bien être avec moi et alors je serai heureuse_), au service des autres. Il y a quelques livres "anti-princesse" pour les petits, où la fille prend le "pouvoir" et l'homme n'a rien à dire. Cela a du mérite d'aller dans l'autre extrême mais ce n'est pas non plus le modèle que je vise.
 
-Parfois, l'histoire commence bien avant de conclure sur une fin conformiste : la fille est heureuse dès lors qu'elle est en couple. C'est le but ultime, il n'y a pas d'autre moyen d'épanouissement (dans Vives et Vaillantes notamment). Il n'y a pas d'histoires parfaites et tous ces livres ont le mérite de bousculer les tendances. 
+Parfois, l'histoire commence bien avant de conclure sur une fin conformiste : la fille est heureuse dès lors qu'elle est en couple. C'est le but ultime, il n'y a pas d'autre moyen d'épanouissement (dans Vives et Vaillantes notamment). 
 
-J'espère que cela vous encouragera à offrir des livres un peu différents à Noël.
+Il n'y a pas d'histoires parfaites et tous ces livres ont le mérite de bousculer les tendances. 
+
+J'espère que cela vous encouragera à offrir des livres un peu différents à Noël. J'ai mis des liens Amazon mais c'est encore mieux chez [votre libraire](https://www.placedeslibraires.fr).
+
+N'hésitez pas à faire des PR pour enrichir la liste, surtout si vous les avez lu et qu'ils vous ont plu !
 
 
 
@@ -39,14 +44,14 @@ Il y a de plus en plus de livres pour enfants où les filles
 
 A partir de 3 ans : 
 
-1. [La pire des princesses](https://amzn.to/2YyEcQ3)
-2. [La princesse et le dragon](https://amzn.to/349L4Eo)
-3. [La révolte des cocottes](https://amzn.to/2PvwjXm)
+1. [La pire des princesses](https://amzn.to/2YyEcQ3). Mignon.
+2. [La princesse et le dragon](https://amzn.to/349L4Eo). Mignon.
+3. [La révolte des cocottes](https://amzn.to/2PvwjXm). Drôle.
 
 
 A partir de 5-6 ans
 
-1. [Femmes incroyables qui ont changé le monde](https://amzn.to/2PCDRrg)
+1. [Femmes incroyables qui ont changé le monde](https://amzn.to/2PCDRrg). Très prenant tout en étant assez court. Je vous le recommande.
 2. [Vives et vaillantes](https://amzn.to/2t0JGao). Contes à lire aux enfants.
 3. [Histoires du soir pour filles rebelles](https://amzn.to/2sgWGbu). Je ne suis pas fan des histoires qui tiennent sur une seule page pour les enfants. L'intrigue a moins de pêche. Le format couverture dur et un peu "pavé" me parait aussi peu adapté. Pour cette raison, la BD Culottées, initialement adressée aux adultes me parait plus kids friendly. Par contre, ces histoires ont le mérite d'être assez exhaustives en terme de portraits dressés.
 
@@ -83,6 +88,10 @@ Adultes
 
 1. [Les crocodiles (BD)](https://amzn.to/34chhLs)
 
+
+Autres ressources enfants :
+- https://affc.ca/top-10-livres-non-sexistes/
+- https://www.terrafemina.com/article/7-livres-pour-enfants-qui-demolissent-joliment-les-stereotypes-de-genre_a322480/1
 
 
 
