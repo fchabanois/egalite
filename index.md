@@ -99,7 +99,7 @@ Autres ressources enfants :
 ## Livres pour adultes
 
 1. [Sea, sexisme and sun](https://amzn.to/2LFEFKS). Celui là a marqué un tournant chez moi. Si vous n'en lisez qu'un, prenez celui là.
-2. [Tu seras un homme -féministe- mon fils!]. Je viens de l'avoir mais il est extrêmement prometteur. J'ai beaucoup de mal à ne pas être sexiste et ce livre aide à mettre le doigt dessus lorsque cela arrive. 
+2. [Tu seras un homme -féministe- mon fils!](https://amzn.to/38u7C6f). Je viens de l'avoir mais il est extrêmement prometteur. J'ai beaucoup de mal à ne pas être sexiste et ce livre aide à mettre le doigt dessus lorsque cela arrive. 
 3. [Culottées, intégrale](https://amzn.to/2sbvon8). 
 5. [Me foot](https://amzn.to/2LHUmBw). Petit libre sur l'histoire du football féminin. Edifiant.
 6. [Le féminisme, à la petite bédéthèque des savoirs](https://amzn.to/38oA49G). Très court et abordable. 
