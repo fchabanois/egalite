@@ -1,6 +1,39 @@
+Il y a un an et demi, je feuilletais un des livres cités ci-dessous devant ma fille.
+
+- _Tu vois cette femme était pirate. C'est amusant non ?_
+- (elle réfléchit 2 secondes). _Ah ! Elle a demandé l'autorisation au capitaine et il était d'accord ?_
+
+Un autre jour, à une pièce de théatre. Une affiche présente une femme PDG sur le mur.
+
+- _Maman, toi aussi tu seras PDG un jour ?_
+- (j'éclate de dire) _Evidemment que non !_
+- _Bah pourquoi non ?_
+- _Heu.... je ne sais pas._
+
+
+Un publicité passe à la TV, avec une femme au volant.
+
+- _Oh maman regarde ! Y a une femme qui conduit !_
+(il y a des femmes qui conduisent dans mon entourage, mais au fil des années, à force de laisser le volant à leurs époux, elles n'ont plus du tout conduit et n'oseront plus le faire).
+
+Lors d'un comité entre CTOs. Je suis quasiment la seule femme. Et pas à l'aise. Je vois quelques autres femmes. Et me surprend à penser que ce sont certainement des assistantes ou membre du comité d'organisation (j'avais raison....). 
+
+
+Je n'ai compris que récemment l'intérêt d'avoir plus de représentations de femmes en role modèle. Leurs absences laissent croire qu'il n'est pas possible pour une fille de devenir Pilote, Pirate, PDG, Astronaute, Chirurgienne, ingénieure, Directrice technique, tout ce qu'elle a envie d'être. L'inverse aussi est vrai : aujourd'hui, c'est difficile pour un garçon de devenir Assistant sociale, Sage-Femme, Aide-soignant, Agent d'entretien, Secrétaire. Au passage ce sont des jobs mal payés mais c'est un autre sujet.
+
+J'ai eu des difficultés à trouver des livres pour enfants qui ne confortaient pas les filles dans des rôles terriblement passifs (j'attends qu'un homme veuille bien être avec moi et alors je serai heureuse) ou juste anti princesse, où la fille prend les choses en mains et l'homme n'a rien à dire. Cela a du mérite d'aller dans l'autre extrême mais ce n'est pas non plus le modèle que je vise.
+
+Parfois, l'histoire commence bien avant de conclure sur une fin conformiste : la fille est heureuse dès lors qu'elle est en couple. C'est le but ultime, il n'y a pas d'autre moyen d'épanouissement (dans Vives et Vaillantes notamment). Il n'y a pas d'histoires parfaites et tous ces livres ont le mérite de bousculer les tendances. 
+
+J'espère que cela vous encouragera à offrir des livres un peu différents à Noël.
+
+
+
 ## Livres pour enfants
 
-Pour filles et garçons.
+Pour filles et garçons. 
+
+Il y a de plus en plus de livres pour enfants où les filles
 
 A partir de 3 ans : 
 
@@ -9,14 +42,26 @@ A partir de 3 ans :
 3. [La révolte des cocottes](https://amzn.to/2PvwjXm)
 
 
-A partir de 5 ans
+A partir de 5-6 ans
 
 1. [Femmes incroyables qui ont changé le monde](https://amzn.to/2PCDRrg)
-2. Culottées (format poche pour les enfants) : [volume I.1](https://amzn.to/2YCjH55), [volume II.1](https://amzn.to/357mF3W),, [volume II.2.](https://amzn.to/2E4t5ET). 
-3. [Histoires du soir pour filles rebelles](https://amzn.to/2sgWGbu). Je ne suis pas fan des histoires qui tiennent sur une seule page pour les enfants. L'intrigue a moins de pêche. Le format couverture dur et un peu "pavé" me parait aussi peu adapté. Pour cette raison, la BD Culottées, initialement adressé aux adultes me parait plus kids friendly. Par contre, ces histoires ont le mérite d'être assez exhaustives en terme de portraits dressés.
+2. [Vives et vaillantes](https://amzn.to/2t0JGao). Contes à lire aux enfants.
+3. [Histoires du soir pour filles rebelles](https://amzn.to/2sgWGbu). Je ne suis pas fan des histoires qui tiennent sur une seule page pour les enfants. L'intrigue a moins de pêche. Le format couverture dur et un peu "pavé" me parait aussi peu adapté. Pour cette raison, la BD Culottées, initialement adressée aux adultes me parait plus kids friendly. Par contre, ces histoires ont le mérite d'être assez exhaustives en terme de portraits dressés.
 
 
-### Pas lu
+A partir de 6 ans (bon lecteur.rice)
+
+1. [Zita, la fille de l'espace](https://amzn.to/344kw7G)(BD). Gros succès chez les enfants.
+2. [AST Apprenti Seigneur des Tenèbres](https://amzn.to/38pO6b9)(BD). Gros succès chez les enfants.
+3. [100 grandes femmes de l'histoire](https://amzn.to/36j4acI). Chaque femme est présenté sur une double page. Dessins assez enfantins pour que les enfants accrochent. 
+4. Culottées (BD) : Format poche pour les enfants [volume I.1](https://amzn.to/2YCjH55), [volume II.1](https://amzn.to/357mF3W),, [volume II.2.](https://amzn.to/2E4t5ET). 
+
+A partir de 8 ans
+
+1. [Mathilda](https://amzn.to/2LKQbF0). Un classique de Roald Dahl.
+
+
+### Pas encore lu
 
 A partir de 3 ans
 
@@ -26,6 +71,11 @@ A partir de 5 ans
 
 1. [Femmes incroyables qui ont changé l'histoire](https://amzn.to/359XTjD) 
 2. [Histoires du soir pour filles rebelles 2](https://amzn.to/2YyEcQ3)
+
+
+A partir de 8 ans
+
+1. [L'effet Mathilda](https://amzn.to/35axO3U). Une jeune fille qui adore les sciences et perd à un concours. Sont également évoquées les scientifiques femmes qui se sont trop souvent faites "volées" leurs découvertes par des hommes.
 
 Adultes
 
@@ -40,9 +90,10 @@ Adultes
 1. [Sea, sexisme and sun](https://amzn.to/2LFEFKS). Celui là a marqué un tournant chez moi. Si vous n'en lisez qu'un, prenez celui là.
 2. [Tu seras un homme -féministe- mon fils!]. Je viens de l'avoir mais il est extrêmement prometteur. J'ai beaucoup de mal à ne pas être sexiste et ce livre aide à mettre le doigt dessus lorsque cela arrive. 
 3. [Culottées, intégrale](https://amzn.to/2sbvon8). 
-4. [Le féminisme, à la petite bédéthèque des savoirs](https://amzn.to/38oA49G). Très court et abordable. 
-5. [L'origine du monde](https://amzn.to/2E7zGyA). Une référence, très documenté. Pas forcément le plus accessible, même si c'est une BD.
-6. [Un autre regard, les 3 volumes](https://amzn.to/35cBVfY). La plus connue du grand public, par Emma. Je n'ai pas accroché plus que ça mais elle a marqhé plusieurs personnes de mon entourage, en particulier des hommes avec la [charge mentale](https://amzn.to/2PwrGw9). Par contre, le [3e volet](https://amzn.to/2Ptb3l6) m'a beaucoup plus tant pour la partie charge émotionnelle que sur le gardien de la paix.
+5. [Me foot](https://amzn.to/2LHUmBw). Petit libre sur l'histoire du football féminin. Edifiant.
+6. [Le féminisme, à la petite bédéthèque des savoirs](https://amzn.to/38oA49G). Très court et abordable. 
+7. [L'origine du monde](https://amzn.to/2E7zGyA). Une référence, très documenté. Pas forcément le plus accessible, même si c'est une BD.
+8. [Un autre regard, les 3 volumes](https://amzn.to/35cBVfY). La plus connue du grand public, par Emma. Je n'ai pas accroché plus que ça mais elle a marqhé plusieurs personnes de mon entourage, en particulier des hommes avec la [charge mentale](https://amzn.to/2PwrGw9). Par contre, le [3e volet](https://amzn.to/2Ptb3l6) m'a beaucoup plus tant pour la partie charge émotionnelle que sur le gardien de la paix.
 
 
 N'importe quel livre qui dresse le portrait d'une femme qui ne vit pas à travers la perception qu'un autre aura sur elle. Quelques exemples : 
@@ -50,12 +101,17 @@ N'importe quel livre qui dresse le portrait d'une femme qui ne vit pas à traver
 - [Pas pour les filles](https://amzn.to/2YCG5ev). Parcours d'une joueuse de football professionnel.
 - [Mes combats de femmes](https://amzn.to/35e1soU). Parcours d'une championne de monde de boxe. 
 
+Autres livres pour adultes
+- https://www.elle.fr/Loisirs/Livres/Dossiers/livre-feministe
+
+
 
 ### Pas encore lu
 
 1. [Les sentiments du prince charles](https://amzn.to/36m2ak8)
 2. [Beauté fatale](https://amzn.to/35bLknJ). Essai acheté suite à la lecture de Sea Sexisme and Sun. Plus académique tout en restant accessible. Je l'ai prêté avoir de l'avoir terminé.
 3. [Sorcières](https://amzn.to/2E42IyO). Le seul livre féminisme qu'un collègue m'ait conseillé. Du même auteur que Beauté fatale.
+4. [Du sexisme dans le sport](https://amzn.to/2sisvB2). 
 
 ## Podcasts pour adultes
 
@@ -64,34 +120,9 @@ N'importe quel livre qui dresse le portrait d'une femme qui ne vit pas à traver
 
 
 
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
 
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 
-### Jekyll Themes
+[Link](url) and ![Image](src)
+**Bold** and _Italic_ and `Code` text
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/fchabanois/change/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
