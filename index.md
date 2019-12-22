@@ -30,7 +30,7 @@ Parfois, l'histoire commence bien avant de conclure sur une fin conformiste : la
 
 Il n'y a pas d'histoires parfaites et tous ces livres ont le mérite de bousculer les tendances. 
 
-J'espère que cela vous encouragera à offrir des livres un peu différents à Noël. J'ai mis des liens Amazon mais c'est encore mieux chez [votre libraire](https://www.placedeslibraires.fr).
+J'espère que cela vous encouragera à offrir des livres un peu différents à Noël. J'ai mis des liens Amazon mais c'est encore mieux chez [votre libraire](https://www.placedeslibraires.fr) ou https://lalibrairie.com. 
 
 N'hésitez pas à faire des PR pour enrichir la liste, surtout si vous les avez lu et qu'ils vous ont plu !
 
@@ -107,6 +107,7 @@ Autres ressources enfants :
 8. [Un autre regard, les 3 volumes](https://amzn.to/35cBVfY). La plus connue du grand public, par Emma. Je n'ai pas accroché plus que ça mais elle a marqhé plusieurs personnes de mon entourage, en particulier des hommes avec la [charge mentale](https://amzn.to/2PwrGw9). Par contre, le [3e volet](https://amzn.to/2Ptb3l6) m'a beaucoup plus tant pour la partie charge émotionnelle que sur le gardien de la paix.
 
 
+
 N'importe quel livre qui dresse le portrait d'une femme qui ne vit pas à travers la perception qu'un autre aura sur elle. Quelques exemples : 
 - [Moi, Malala](https://amzn.to/2P7IUAY). Celle qui a dit non aux talibans, à 14 ans. Prix Nobel de la paix.
 - [Pas pour les filles](https://amzn.to/2YCG5ev). Parcours d'une joueuse de football professionnel.
@@ -123,6 +124,7 @@ Autres livres pour adultes
 2. [Beauté fatale](https://amzn.to/35bLknJ). Essai acheté suite à la lecture de Sea Sexisme and Sun. Plus académique tout en restant accessible. Je l'ai prêté avoir de l'avoir terminé.
 3. [Sorcières](https://amzn.to/2E42IyO). Le seul livre féminisme qu'un collègue m'ait conseillé. Du même auteur que Beauté fatale.
 4. [Du sexisme dans le sport](https://amzn.to/2sisvB2). 
+5. [Chère Ijeawele, ou un manifeste pour une éducation féministe: Un manifeste pour une éducation féministe](https://amzn.to/2EGLFmU). Ted talk de l'auteur : https://www.ted.com/talks/chimamanda_ngozi_adichie_we_should_all_be_feminists
 
 ## Podcasts pour adultes
 
