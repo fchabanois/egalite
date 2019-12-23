@@ -105,6 +105,7 @@ Autres ressources enfants :
 6. [Le féminisme, à la petite bédéthèque des savoirs](https://amzn.to/38oA49G). Très court et abordable. 
 7. [L'origine du monde](https://amzn.to/2E7zGyA). Une référence, très documenté. Pas forcément le plus accessible, même si c'est une BD.
 8. [Un autre regard, les 3 volumes](https://amzn.to/35cBVfY). La plus connue du grand public, par Emma. Je n'ai pas accroché plus que ça mais elle a marqhé plusieurs personnes de mon entourage, en particulier des hommes avec la [charge mentale](https://amzn.to/2PwrGw9). Par contre, le [3e volet](https://amzn.to/2Ptb3l6) m'a beaucoup plus tant pour la partie charge émotionnelle que sur le gardien de la paix.
+9. [Vie de meuf, le sexisme ordinaire illustré](https://amzn.to/2PPmEMA). Le seul livre dont les enfants me réclament des extraits, ça les fait rire. Certaines anecdotes sont limites.
 
 
 
@@ -125,6 +126,7 @@ Autres livres pour adultes
 3. [Sorcières](https://amzn.to/2E42IyO). Le seul livre féminisme qu'un collègue m'ait conseillé. Du même auteur que Beauté fatale.
 4. [Du sexisme dans le sport](https://amzn.to/2sisvB2). 
 5. [Chère Ijeawele, ou un manifeste pour une éducation féministe: Un manifeste pour une éducation féministe](https://amzn.to/2EGLFmU). Ted talk de l'auteur : https://www.ted.com/talks/chimamanda_ngozi_adichie_we_should_all_be_feminists
+6. [Des princes pas si charmants](https://amzn.to/2Mq8HCN)(BD)
 
 ## Podcasts pour adultes
 
