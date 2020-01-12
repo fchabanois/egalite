@@ -128,6 +128,7 @@ Autres livres pour adultes
 4. [Du sexisme dans le sport](https://amzn.to/2sisvB2). 
 5. [Des princes pas si charmants](https://amzn.to/2Mq8HCN)(BD)
 6. [Jenny Marx, ou la femme du diable](https://amzn.to/37TQxl8) Essai sur la vie du couple Marx, basé sur leurs lettres. 
+7. [Les oubliées du numériques](https://www.le-passeur-editeur.com/les-livres/essais/les-oubliées-du-numérique/). "Un livre essentiel pour comprendre pourquoi le numérique est massivement dominé par les hommes et quelles sont les solutions à mettre en place pour l’inclusion des femmes dans ce secteur, un enjeu crucial aujourd’hui."
 
 ## Podcasts pour adultes
 
