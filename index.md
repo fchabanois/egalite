@@ -106,6 +106,8 @@ Autres ressources enfants :
 7. [L'origine du monde](https://amzn.to/2E7zGyA). Une référence, très documenté. Pas forcément le plus accessible, même si c'est une BD.
 8. [Un autre regard, les 3 volumes](https://amzn.to/35cBVfY). La plus connue du grand public, par Emma. Je n'ai pas accroché plus que ça mais elle a marqhé plusieurs personnes de mon entourage, en particulier des hommes avec la [charge mentale](https://amzn.to/2PwrGw9). Par contre, le [3e volet](https://amzn.to/2Ptb3l6) m'a beaucoup plus tant pour la partie charge émotionnelle que sur le gardien de la paix.
 9. [Vie de meuf, le sexisme ordinaire illustré](https://amzn.to/2PPmEMA). Le seul livre dont les enfants me réclament des extraits, ça les fait rire. Certaines anecdotes sont limites.
+10. [Les sentiments du prince charles](https://amzn.to/36m2ak8). BD sur le sentiment amoureux : dans le couple, en dehors du couple, mais aussi sur le rôle des femmes par rapport au succès de leurs amoureux. Assez dense pour une BD, comme [L'origine du monde](https://amzn.to/2E7zGyA).
+11. [Chère Ijeawele, ou un manifeste pour une éducation féministe: Un manifeste pour une éducation féministe](https://amzn.to/2EGLFmU). Très court mais très intéressant. J'aurais aimé l'avoir lu adolescente. Tout le monde devrait le lire. Ted talk de l'auteur : https://www.ted.com/talks/chimamanda_ngozi_adichie_we_should_all_be_feminists
 
 
 
@@ -121,12 +123,11 @@ Autres livres pour adultes
 
 ### Pas encore lu
 
-1. [Les sentiments du prince charles](https://amzn.to/36m2ak8)
-2. [Beauté fatale](https://amzn.to/35bLknJ). Essai acheté suite à la lecture de Sea Sexisme and Sun. Plus académique tout en restant accessible. Je l'ai prêté avoir de l'avoir terminé.
+1. [Beauté fatale](https://amzn.to/35bLknJ). Essai acheté suite à la lecture de Sea Sexisme and Sun. Plus académique tout en restant accessible. Je l'ai prêté avoir de l'avoir terminé.
 3. [Sorcières](https://amzn.to/2E42IyO). Le seul livre féminisme qu'un collègue m'ait conseillé. Du même auteur que Beauté fatale.
 4. [Du sexisme dans le sport](https://amzn.to/2sisvB2). 
-5. [Chère Ijeawele, ou un manifeste pour une éducation féministe: Un manifeste pour une éducation féministe](https://amzn.to/2EGLFmU). Ted talk de l'auteur : https://www.ted.com/talks/chimamanda_ngozi_adichie_we_should_all_be_feminists
-6. [Des princes pas si charmants](https://amzn.to/2Mq8HCN)(BD)
+5. [Des princes pas si charmants](https://amzn.to/2Mq8HCN)(BD)
+6. [Jenny Marx, ou la femme du diable](https://amzn.to/37TQxl8) Essai sur la vie du couple Marx, basé sur leurs lettres. 
 
 ## Podcasts pour adultes
 
