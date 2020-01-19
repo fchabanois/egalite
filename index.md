@@ -47,6 +47,8 @@ A partir de 3 ans :
 1. [La pire des princesses](https://amzn.to/2YyEcQ3). Mignon.
 2. [La princesse et le dragon](https://amzn.to/349L4Eo). Mignon.
 3. [La révolte des cocottes](https://amzn.to/2PvwjXm). Drôle.
+4. [Strong boy](https://amzn.to/2Rt7KLI). Tshirt magique qui confère à Olga des supers pouvoirs. Sur l'équité.
+5. [La princesse finemouche](https://amzn.to/2tooPyA). Même si pas parfait, joli pied de nez sur le mariage en tant que graal pour une femme. Top. L'histoire est accompagnée d'une version inversée de Cendrillon "Le prince Gringalet" dans l'album [Le prince, la princesse et le p'tit roi](https://amzn.to/2Rvs7rH).
 
 
 A partir de 5-6 ans
