@@ -136,6 +136,9 @@ Autres livres pour adultes
 
 1. [La poudre](https://www.nouvellesecoutes.fr/la-poudre/). Interviews de Femmes artistes, policiennes, écrivaines entre bien d'autres.
 2. [Les couilles sur la table](https://soundcloud.com/lescouilles-podcast). Reflexions avec un.e invité.e sur la masculinité. 
+3. [L'épuisement face à la violence](https://soundcloud.com/slate-fr/lepuisement-face-a-la-violence-podcast). Anaïs Bourdet raconte la naissance et la mort de son blog sur le harcèlement de rue https://payetashnek.tumblr.com. 
+4. [Le deuxième texte](https://fr.player.fm/series/2493657). Donne des outils et pistes sur le féminisme d'aujourd'hui
+5. [Yesss](https://yessspodcast.fr). Victoires de femmes.
 
 
 
