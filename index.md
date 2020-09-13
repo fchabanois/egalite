@@ -49,6 +49,7 @@ A partir de 3 ans :
 3. [La révolte des cocottes](https://amzn.to/2PvwjXm). Drôle.
 4. [Strong boy](https://amzn.to/2Rt7KLI). Tshirt magique qui confère à Olga des supers pouvoirs. Sur l'équité.
 5. [La princesse finemouche](https://amzn.to/2tooPyA). Même si pas parfait, joli pied de nez sur le mariage en tant que graal pour une femme. Top. L'histoire est accompagnée d'une version inversée de Cendrillon "Le prince Gringalet" dans l'album [Le prince, la princesse et le p'tit roi](https://amzn.to/2Rvs7rH).
+6. [La belle lisse poire du Prince de Motordu](https://amzn.to/3hrkOMF). Bien que publié la première fois en 1980, ce grand classique est loin de dépeindre une femme passive et un homme qui laisse les tâches ménagères à son épouse. Une valeur sure.
 
 
 A partir de 5-6 ans
@@ -64,10 +65,13 @@ A partir de 6 ans (bon lecteur.rice)
 2. [AST Apprenti Seigneur des Tenèbres](https://amzn.to/38pO6b9)(BD). Gros succès chez les enfants.
 3. [100 grandes femmes de l'histoire](https://amzn.to/36j4acI). Chaque femme est présenté sur une double page. Dessins assez enfantins pour que les enfants accrochent. 
 4. Culottées (BD) : Format poche pour les enfants [volume I.1](https://amzn.to/2YCjH55), [volume II.1](https://amzn.to/357mF3W),, [volume II.2.](https://amzn.to/2E4t5ET). 
+5. La série des [Mortelle Adèle](https://amzn.to/3bVbtM3). Le but d'Adèle ? conquérir le monde. Pas de plafond de verre pour elle.
 
 A partir de 8 ans
 
 1. [Mathilda](https://amzn.to/2LKQbF0). Un classique de Roald Dahl.
+2. [L'effet Mathilda](https://amzn.to/35axO3U). Une jeune fille qui adore les sciences et perd à un concours. Sont également évoquées les scientifiques femmes qui se sont trop souvent faites "volées" leurs découvertes par des hommes.
+3. [Starfell](https://amzn.to/3bRw6bS). Milieu de sorcière, extension Harry Potter. Apprécié des deux enfants.
 
 
 ### Pas encore lu
@@ -82,9 +86,7 @@ A partir de 5 ans
 2. [Histoires du soir pour filles rebelles 2](https://amzn.to/2YyEcQ3)
 
 
-A partir de 8 ans
 
-1. [L'effet Mathilda](https://amzn.to/35axO3U). Une jeune fille qui adore les sciences et perd à un concours. Sont également évoquées les scientifiques femmes qui se sont trop souvent faites "volées" leurs découvertes par des hommes.
 
 Adultes
 
