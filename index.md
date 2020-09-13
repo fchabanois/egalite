@@ -110,8 +110,12 @@ Autres ressources enfants :
 9. [Vie de meuf, le sexisme ordinaire illustré](https://amzn.to/2PPmEMA). Le seul livre dont les enfants me réclament des extraits, ça les fait rire. Certaines anecdotes sont limites.
 10. [Les sentiments du prince charles](https://amzn.to/36m2ak8). BD sur le sentiment amoureux : dans le couple, en dehors du couple, mais aussi sur le rôle des femmes par rapport au succès de leurs amoureux. Assez dense pour une BD, comme [L'origine du monde](https://amzn.to/2E7zGyA).
 11. [Chère Ijeawele, ou un manifeste pour une éducation féministe: Un manifeste pour une éducation féministe](https://amzn.to/2EGLFmU). Très court mais très intéressant. J'aurais aimé l'avoir lu adolescente. Tout le monde devrait le lire. Ted talk de l'auteur : https://www.ted.com/talks/chimamanda_ngozi_adichie_we_should_all_be_feminists
+12. [Beyoncé est-elle féministe](http://osezlefeminisme.fr/beyonce-est-elle-feministe/). Très bon panorama du féminisme, très agréable à lire tout en abordant des sujets de fond. J'aurais aimé lire celui-ci en premier lieu. 
 
 
+### Contre invisibilisation
+
+1. [Ni vues ni connues](http://georgettesand.com/2019/10/14/devenir-benevole/). Le collectif Georgette Sand décortique l’invisibilisation des femmes dans l’Histoire au travers du portrait de 75 femmes méconnues ou inconnues.
 
 N'importe quel livre qui dresse le portrait d'une femme qui ne vit pas à travers la perception qu'un autre aura sur elle. Quelques exemples : 
 - [Moi, Malala](https://amzn.to/2P7IUAY). Celle qui a dit non aux talibans, à 14 ans. Prix Nobel de la paix.
