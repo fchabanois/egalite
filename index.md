@@ -159,6 +159,9 @@ Autres livres pour adultes
 3. [L'épuisement face à la violence](https://soundcloud.com/slate-fr/lepuisement-face-a-la-violence-podcast). Anaïs Bourdet raconte la naissance et la mort de son blog sur le harcèlement de rue https://payetashnek.tumblr.com. 
 4. [Le deuxième texte](https://fr.player.fm/series/2493657). Donne des outils et pistes sur le féminisme d'aujourd'hui
 5. [Yesss](https://yessspodcast.fr). Victoires de femmes.
+6. [Un podcast à soi](https://www.arteradio.com/emission/un_podcast_soi). Un Podcast à soi mêle intimité et expertise, témoignages et réflexions, pour aborder les questions de genre, de féminismes, d’égalité entre les femmes et les hommes.
+7. [Quoi de meufs](https://nouvellesecoutes.fr/podcast/quoi-de-meuf/). Une conversation générationnelle et intersectionnelle sur la pop culture. Aux commandes : Clémentine Gallot co-créatrice de la newsletter du même nom. A ses côtés, vous retrouverez tour à tour : Kiyémis, blogueuse et poétesse afroféministe, Anne-Laure Pineau, journaliste spécialiste des questions LGBT, Pauline Verduzier, journaliste obsédée par les sexualités, et Kaoutar Harchi, chercheure en sociologie qui travaille sur les rapports de pouvoir qui façonnent les mondes de l’art et de la culture.
+
 
 
 
