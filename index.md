@@ -119,6 +119,9 @@ Autres ressources enfants :
 10. [Les sentiments du prince charles](https://amzn.to/36m2ak8). BD sur le sentiment amoureux : dans le couple, en dehors du couple, mais aussi sur le rôle des femmes par rapport au succès de leurs amoureux. Assez dense pour une BD, comme [L'origine du monde](https://amzn.to/2E7zGyA).
 11. [Chère Ijeawele, ou un manifeste pour une éducation féministe: Un manifeste pour une éducation féministe](https://amzn.to/2EGLFmU). Très court mais très intéressant. J'aurais aimé l'avoir lu adolescente. Tout le monde devrait le lire. Ted talk de l'auteur : https://www.ted.com/talks/chimamanda_ngozi_adichie_we_should_all_be_feminists
 12. [Beyoncé est-elle féministe](http://osezlefeminisme.fr/beyonce-est-elle-feministe/). Très bon panorama du féminisme, très agréable à lire tout en abordant des sujets de fond. J'aurais aimé lire celui-ci en premier lieu. 
+13. [Les femmes et le pouvoir](https://amzn.to/3mh4X6U). " Mère, retourne dans tes appartements, reprends tes travaux [...] discourir est l'affaire des hommes. " Ainsi dans l' Odyssée d'Homère, Télémaque s'adresse-t-il à Pénélope. Révolte adolescente ou misogynie systémique ? 
+Pour mieux cerner la violence exercée sur les femmes afin de leur intimer le silence, Mary Beard puise dans l'histoire de Méduse, d'Elizabeth Ire ou d'Hillary Clinton. Elle revisite ainsi, avec humour, la question de l'égalité des sexes et explique pourquoi, depuis deux mille ans, l'on a des femmes qui s'expriment et revendiquent le pouvoir une image détestable. 
+
 
 
 ### Contre invisibilisation
