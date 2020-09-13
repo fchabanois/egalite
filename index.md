@@ -50,6 +50,10 @@ A partir de 3 ans :
 4. [Strong boy](https://amzn.to/2Rt7KLI). Tshirt magique qui confère à Olga des supers pouvoirs. Sur l'équité.
 5. [La princesse finemouche](https://amzn.to/2tooPyA). Même si pas parfait, joli pied de nez sur le mariage en tant que graal pour une femme. Top. L'histoire est accompagnée d'une version inversée de Cendrillon "Le prince Gringalet" dans l'album [Le prince, la princesse et le p'tit roi](https://amzn.to/2Rvs7rH).
 6. [La belle lisse poire du Prince de Motordu](https://amzn.to/3hrkOMF). Bien que publié la première fois en 1980, ce grand classique est loin de dépeindre une femme passive et un homme qui laisse les tâches ménagères à son épouse. Une valeur sure.
+7. [Péronnille la chevalière](https://amzn.to/3kcYl7D). Péronnille part au combat et surmonte les épreuves d'adresse, de force et d'intelligence. A la fin, en dépit de ce que le peuple veut, il n'y a pas de mariage (car "personne n'a demandé son avis au prince"). Les transitions sont un peu brusques mais c'est peut-être adapté pour les plus petit.e.s
+8. [Quatre poules et un coq](https://amzn.to/2FxNUg8). 4 poules qui se font peu à peu trop envahir par le coq qui veut de plus en plus de place. Elles finissent pas s'organiser, et une fois que le coq a été remis à sa place, ils cohabitent bien tous et toutes ensemble. Je l'ai bien aimé. 
+
+
 
 
 A partir de 5-6 ans
@@ -72,6 +76,8 @@ A partir de 8 ans
 1. [Mathilda](https://amzn.to/2LKQbF0). Un classique de Roald Dahl.
 2. [L'effet Mathilda](https://amzn.to/35axO3U). Une jeune fille qui adore les sciences et perd à un concours. Sont également évoquées les scientifiques femmes qui se sont trop souvent faites "volées" leurs découvertes par des hommes.
 3. [Starfell](https://amzn.to/3bRw6bS). Milieu de sorcière, extension Harry Potter. Apprécié des deux enfants.
+4. [La ligue des super féministes](https://amzn.to/35vvY0w). La Ligue des super-féministes est une super-boite à outils féministes. Elle aborde avec clarté, pédagogie et beaucoup d'humour la représentation , le consentement, le corps, l'identité sexuelle... Ces notions sont complétées par des outils pratiques (test de Bechdel, écriture inclusive...) qui font de cette BD un véritable petit manuel d'auto-défense féministe, salutaire à tout âge.
+
 
 
 ### Pas encore lu
@@ -137,6 +143,14 @@ Autres livres pour adultes
 5. [Des princes pas si charmants](https://amzn.to/2Mq8HCN)(BD)
 6. [Jenny Marx, ou la femme du diable](https://amzn.to/37TQxl8) Essai sur la vie du couple Marx, basé sur leurs lettres. 
 7. [Les oubliées du numériques](https://www.le-passeur-editeur.com/les-livres/essais/les-oubliées-du-numérique/). "Un livre essentiel pour comprendre pourquoi le numérique est massivement dominé par les hommes et quelles sont les solutions à mettre en place pour l’inclusion des femmes dans ce secteur, un enjeu crucial aujourd’hui."
+8. [Caliban et la sorcière](https://amzn.to/3meT2qe), a marqué un tournant pour Noémie De Lattre.
+9. [Le capitalisme patriarcale](https://amzn.to/3k7I7N8), de la même autrice.
+10. [Sorcières, sage-femmes et infirmières](https://amzn.to/2RAKJal). Publié en 1973 aux États-Unis, Sorcières, sages-femmes et infirmières enquête sur la professionnalisation forcée de la médecine au cours des siècles et son corollaire : la diabolisation des guérisseuses populaires au XVIe siècle en Europe, la mise à l'écart des sages-femmes au XIXe et la construction du personnage de l'infirmière façon Florence Nightingale
+11. [Une voix différente](https://amzn.to/3ivDD2v). Publié en 1986. La morale a-t-elle un sexe ? Les femmes et les hommes ont-ils un sens différent de la moralité ? Une telle question donne la mesure de l'immense débat qu'a suscité le livre de Carol Gilligan, catalyseur des réflexions féministes sur une éthique qui valorise le souci des autres : le care. Aux États-Unis, Une voix différente est le texte le plus lu et le plus cité de la « deuxième vague » du féminisme. (...) comment faire, dans une situation donnée, pour préserver et entretenir les relations humaines qui sont en jeu ?
+12. [Pourquoi le patriarcat ?](https://amzn.to/2RmQmZl), également de Carol Gilligan. Son nouveau livre, Pourquoi le patriarcat ?, avance une hypothèse psychologique nouvelle sur la persistance du patriarcat. S'il perdure, c'est non seulement parce que les personnes en position de pouvoir sont réticentes à renoncer à leurs privilèges, mais aussi parce qu'il sert une fonction psychologique. Dans la mesure où il requiert le sacrifice de l'amour au nom de la hiérarchie (songeons à Abraham qui se soumet à l'ordre divin en tuant son fils Isaac), le patriarcat s'érige en rempart contre la vulnérabilité associée au fait d'aimer. Par là même, il se dresse en bouclier contre la perte.
+13. [Les Couilles sur la table](https://amzn.to/32wetvj), de Victoire Tuaillon. Créatrice du génialissime podcast du même nom sur la masculinité. Qu'est-ce que ça veut dire d’être un homme, en France, au XXIe siècle ? Qu'est-ce que ça implique ? (...) ils ont interrogé la masculinité et ses effets : pourquoi, dans une immense majorité des cas, les harceleurs, les violeurs, les casseurs, sont-ils des hommes ? Pourquoi les petits garçons disent-ils tous que “l’amour c’est nul” ou encore que “l’amour c’est pour les filles” ? Comment la domination masculine affecte-t-elle aussi les hommes ? Réunissant les réponses à ces questions et à bien d'autres, ce livre démontre sans dogmatisme que la masculinité n’a rien de naturel, que c’est une construction sociale et qu’il faut la remettre en question si on veut atteindre une véritable égalité entre les femmes et les hommes. 
+14. [Woman world (BD)](https://amzn.to/3bZ1cOH). L’action se déroule dans le futur, alors que les hommes ont progressivement disparu de la surface de la Terre et que les catastrophes écologiques s’enchaînent. Nous suivons la vie d’une communauté de femmes qui vivent, aiment, créent, font des blagues, travaillent, s’inquiètent de leur survie et de celle de l’humanité, fouillent les décombres du monde d’avant à la recherche des traces de la culture du XXIe siècle… Parmi elle une mairesse nue, une grand-mère qui a connu la vie avec les hommes, une doctoresse, une poétesse, une petite fille conçue par FIV, et plusieurs autres voix qui s’entremêlent pour former cet étonnante BD chorale. Woman World est plus qu’une BD hilarante, c’est aussi un conte philosophique audacieux qui manie brillamment (et avec beaucoup de subtilité) les concepts féministes, une métaphore de notre inertie face à l’urgence climatique… et un hommage à la pop culture du XXIe siècle.
+
 
 ## Podcasts pour adultes
 
