@@ -79,6 +79,11 @@ A partir de 8 ans
 4. [La ligue des super féministes](https://amzn.to/35vvY0w). La Ligue des super-féministes est une super-boite à outils féministes. Elle aborde avec clarté, pédagogie et beaucoup d'humour la représentation , le consentement, le corps, l'identité sexuelle... Ces notions sont complétées par des outils pratiques (test de Bechdel, écriture inclusive...) qui font de cette BD un véritable petit manuel d'auto-défense féministe, salutaire à tout âge.
 
 
+Must read, à partir de 8 ans
+
+1. [L'égalité filles garçons pas bêtes](https://amzn.to/3hpFDIg). Est-ce qu'un jour les filles et les garçons seront à égalité ? Les garçons sont-ils vraiment plus forts ? Comment les femmes ont-elles eu le droit de vote ? Est-ce que les garçons ont le droit de pleurer ? Ça existe des femmes présidentes ? Pourquoi on dit garçon manqué pour une fille et femmelette pour un garçon ? Qui sont les plus intelligents : les filles ou les garçons ? Pourquoi il y a des femmes nues dans la pub ?... À partir de vraies questions d'enfants, le livre s'interroge sur la différences des sexes : Qu'est-ce qu'une fille, qu'est-ce qu'un garçon ? Quel est le rôle de chacun ? Comment l'identité sexuelle se construit-elle vraiment ? Le genre est-il une construction sociale ou une donnée de la nature ?... 
+
+
 
 ### Pas encore lu
 
@@ -119,19 +124,26 @@ Autres ressources enfants :
 10. [Les sentiments du prince charles](https://amzn.to/36m2ak8). BD sur le sentiment amoureux : dans le couple, en dehors du couple, mais aussi sur le rôle des femmes par rapport au succès de leurs amoureux. Assez dense pour une BD, comme [L'origine du monde](https://amzn.to/2E7zGyA).
 11. [Chère Ijeawele, ou un manifeste pour une éducation féministe: Un manifeste pour une éducation féministe](https://amzn.to/2EGLFmU). Très court mais très intéressant. J'aurais aimé l'avoir lu adolescente. Tout le monde devrait le lire. Ted talk de l'auteur : https://www.ted.com/talks/chimamanda_ngozi_adichie_we_should_all_be_feminists
 12. [Beyoncé est-elle féministe](http://osezlefeminisme.fr/beyonce-est-elle-feministe/). Très bon panorama du féminisme, très agréable à lire tout en abordant des sujets de fond. J'aurais aimé lire celui-ci en premier lieu. 
-13. [Les femmes et le pouvoir](https://amzn.to/3mh4X6U). " Mère, retourne dans tes appartements, reprends tes travaux [...] discourir est l'affaire des hommes. " Ainsi dans l' Odyssée d'Homère, Télémaque s'adresse-t-il à Pénélope. Révolte adolescente ou misogynie systémique ? 
-Pour mieux cerner la violence exercée sur les femmes afin de leur intimer le silence, Mary Beard puise dans l'histoire de Méduse, d'Elizabeth Ire ou d'Hillary Clinton. Elle revisite ainsi, avec humour, la question de l'égalité des sexes et explique pourquoi, depuis deux mille ans, l'on a des femmes qui s'expriment et revendiquent le pouvoir une image détestable. 
+13. [Féministes du monde arabe](https://amzn.to/35zK7d2). Une découverte pour moi, car pas mal d'idées reçues sur la sitation des femmes du monde arable. Alors qu'il y a beaucoup de matières dont il faudrait s'inspirer. 
+14. [La plus belles histoire des femmes](https://amzn.to/2FCznQ2). Y eut-il un temps béni où une nature féminine se serait exprimée en toute liberté ? Comment nos lointaines grand-mères vivaient-elles leurs amours et leurs maternités ? Quand les hommes ont-ils voulu contrôler le ventre de leurs compagnes ? Comment, au fil des siècles, les femmes traversaient-elles l'enfance, l'adolescence, la maturité, la vieillesse ? Quel regard a-t-on porté sur elles ? Où en sommes-nous maintenant, à l'heure paradoxale des fécondations assistées et des crimes dits " d'honneur " ?
+Voici donc le grand roman des femmes. Dans un dialogue audacieux qui fait tomber nombre d'idées reçues, quatre femmes d'exception racontent, sans jargon ni tabous, l'histoire de la condition féminine. Ce qu'elles révèlent ici, c'est ce combat inouï contre l'ordre - moral, social et sexuel - imposé par des générations de monarques, prêtres, pères, maris, une longue marche qui est loin d'être terminée. Aujourd'hui, dans la société, la famille, le couple, l'intimité du lit, sommes-nous aussi dégagés des vieux préjugés que nous le prétendons ? 
+15. ["Mon" histoire des femmes](https://amzn.to/3ki83FX). 
+
 
 
 
 ### Contre invisibilisation
 
 1. [Ni vues ni connues](http://georgettesand.com/2019/10/14/devenir-benevole/). Le collectif Georgette Sand décortique l’invisibilisation des femmes dans l’Histoire au travers du portrait de 75 femmes méconnues ou inconnues.
+2. [Femmes publiques](https://amzn.to/3bZuDjW), de Michelle Perrot. Être un homme public, c'est l'honneur, alors qu'être une femme publique... c'est la honte. Aux femmes, le privé et son coeur, la maison. Aux hommes, le public et le politique, son sanctuaire. 
+3. [Les femmes ou le silence de l'histoire](https://amzn.to/2ZEgC6d). Les femmes font aujourd'hui du bruit ? C'est en regard du silence dans lequel les a tenues la société pendant des siècles. Silence des exploits guerriers ou techniques, silence des livres et des images, silence surtout du récit historique qu'interroge justement l'historienne. Car derrière les murs des couvents ou des maisons bourgeoises, dans l'intimité de leurs journaux ou dans leurs confidences distraites, dans les murmures de l'atelier ou du marché, dans les interstices d'un espace public peu à peu investi, les femmes ont agi, vécu, souffert et travaillé à changer leurs destinées. 
+
 
 N'importe quel livre qui dresse le portrait d'une femme qui ne vit pas à travers la perception qu'un autre aura sur elle. Quelques exemples : 
 - [Moi, Malala](https://amzn.to/2P7IUAY). Celle qui a dit non aux talibans, à 14 ans. Prix Nobel de la paix.
 - [Pas pour les filles](https://amzn.to/2YCG5ev). Parcours d'une joueuse de football professionnel.
 - [Mes combats de femmes](https://amzn.to/35e1soU). Parcours d'une championne de monde de boxe. 
+- [Parce que les choses peuvent être différentes](https://amzn.to/3bYEhDb). Manuela Carmena a 71 ans quand elle est élue maire de Madrid, poussée à la fois par les indignés de la Puerta del Sol, les réseaux sociaux et les partis traditionnels de gauche. Et par sa légende : elle a échappé au dernier attentat mortel de la période post-franquiste. Vaillante, originale, provocatrice, Manuela aura tissé au fil du temps une « culture non-violente féminine-féministe » qui se trouve rencontrer les attentes d'une société fatiguée des valeurs machistes, verticales, d'autorité, de rigidité. 
 
 Autres livres pour adultes
 - https://www.elle.fr/Loisirs/Livres/Dossiers/livre-feministe
@@ -153,6 +165,16 @@ Autres livres pour adultes
 12. [Pourquoi le patriarcat ?](https://amzn.to/2RmQmZl), également de Carol Gilligan. Son nouveau livre, Pourquoi le patriarcat ?, avance une hypothèse psychologique nouvelle sur la persistance du patriarcat. S'il perdure, c'est non seulement parce que les personnes en position de pouvoir sont réticentes à renoncer à leurs privilèges, mais aussi parce qu'il sert une fonction psychologique. Dans la mesure où il requiert le sacrifice de l'amour au nom de la hiérarchie (songeons à Abraham qui se soumet à l'ordre divin en tuant son fils Isaac), le patriarcat s'érige en rempart contre la vulnérabilité associée au fait d'aimer. Par là même, il se dresse en bouclier contre la perte.
 13. [Les Couilles sur la table](https://amzn.to/32wetvj), de Victoire Tuaillon. Créatrice du génialissime podcast du même nom sur la masculinité. Qu'est-ce que ça veut dire d’être un homme, en France, au XXIe siècle ? Qu'est-ce que ça implique ? (...) ils ont interrogé la masculinité et ses effets : pourquoi, dans une immense majorité des cas, les harceleurs, les violeurs, les casseurs, sont-ils des hommes ? Pourquoi les petits garçons disent-ils tous que “l’amour c’est nul” ou encore que “l’amour c’est pour les filles” ? Comment la domination masculine affecte-t-elle aussi les hommes ? Réunissant les réponses à ces questions et à bien d'autres, ce livre démontre sans dogmatisme que la masculinité n’a rien de naturel, que c’est une construction sociale et qu’il faut la remettre en question si on veut atteindre une véritable égalité entre les femmes et les hommes. 
 14. [Woman world (BD)](https://amzn.to/3bZ1cOH). L’action se déroule dans le futur, alors que les hommes ont progressivement disparu de la surface de la Terre et que les catastrophes écologiques s’enchaînent. Nous suivons la vie d’une communauté de femmes qui vivent, aiment, créent, font des blagues, travaillent, s’inquiètent de leur survie et de celle de l’humanité, fouillent les décombres du monde d’avant à la recherche des traces de la culture du XXIe siècle… Parmi elle une mairesse nue, une grand-mère qui a connu la vie avec les hommes, une doctoresse, une poétesse, une petite fille conçue par FIV, et plusieurs autres voix qui s’entremêlent pour former cet étonnante BD chorale. Woman World est plus qu’une BD hilarante, c’est aussi un conte philosophique audacieux qui manie brillamment (et avec beaucoup de subtilité) les concepts féministes, une métaphore de notre inertie face à l’urgence climatique… et un hommage à la pop culture du XXIe siècle.
+15. [Les hommes naissent libres et égaux... et les femmes ?](https://amzn.to/2E0hme9). Loin d'avoir gagné l'égalité, les femmes sont en réalité en train de perdre beaucoup de terrain. Et le combat est loin d'être terminé car les mentalités - au féminin comme au masculin - n'ont pas évolué au rythme des avancées du siècle dernier. Dans les rares pays où ils ont été obtenus, les acquis sont régulièrement attaqués et la situation des femmes se dégrade : droit à l'avortement, contraception, santé, emploi, salaires, éducation, violence... Que faire pour changer cette situation avant qu'il ne soit trop tard ?
+16. [Les femmes et le pouvoir](https://amzn.to/3mh4X6U). " Mère, retourne dans tes appartements, reprends tes travaux [...] discourir est l'affaire des hommes. " Ainsi dans l' Odyssée d'Homère, Télémaque s'adresse-t-il à Pénélope. Révolte adolescente ou misogynie systémique ? 
+Pour mieux cerner la violence exercée sur les femmes afin de leur intimer le silence, Mary Beard puise dans l'histoire de Méduse, d'Elizabeth Ire ou d'Hillary Clinton. Elle revisite ainsi, avec humour, la question de l'égalité des sexes et explique pourquoi, depuis deux mille ans, l'on a des femmes qui s'expriment et revendiquent le pouvoir une image détestable. 
+
+
+
+### Outils
+
+1. [Les mots pour combattre le sexisme](https://amzn.to/2Zyvm6j). Abécédaire de 60 mots de décryptage.
+
 
 
 ## Podcasts pour adultes
