@@ -79,9 +79,10 @@ A partir de 8 ans
 4. [La ligue des super féministes](https://amzn.to/35vvY0w). La Ligue des super-féministes est une super-boite à outils féministes. Elle aborde avec clarté, pédagogie et beaucoup d'humour la représentation , le consentement, le corps, l'identité sexuelle... Ces notions sont complétées par des outils pratiques (test de Bechdel, écriture inclusive...) qui font de cette BD un véritable petit manuel d'auto-défense féministe, salutaire à tout âge.
 
 
-Must read, à partir de 8 ans
+Must read, à partir de 8 ans, jusque 99 ans
 
 1. [L'égalité filles garçons pas bêtes](https://amzn.to/3hpFDIg). Est-ce qu'un jour les filles et les garçons seront à égalité ? Les garçons sont-ils vraiment plus forts ? Comment les femmes ont-elles eu le droit de vote ? Est-ce que les garçons ont le droit de pleurer ? Ça existe des femmes présidentes ? Pourquoi on dit garçon manqué pour une fille et femmelette pour un garçon ? Qui sont les plus intelligents : les filles ou les garçons ? Pourquoi il y a des femmes nues dans la pub ?... À partir de vraies questions d'enfants, le livre s'interroge sur la différences des sexes : Qu'est-ce qu'une fille, qu'est-ce qu'un garçon ? Quel est le rôle de chacun ? Comment l'identité sexuelle se construit-elle vraiment ? Le genre est-il une construction sociale ou une donnée de la nature ?... 
+2. [POURQUOI y a-t-il des inégalités entre les hommes et les femmes?](https://amzn.to/3laD3bh). BD qui parcourt avec humour et simplicité la place de la femme dans l'histoire. Léger et instructif à la foi, ce qui permet plusieurs niveaux de lectures (enfant / adultes). J'ai beaucoup aimé.
 
 
 
@@ -128,6 +129,7 @@ Autres ressources enfants :
 14. [La plus belles histoire des femmes](https://amzn.to/2FCznQ2). Y eut-il un temps béni où une nature féminine se serait exprimée en toute liberté ? Comment nos lointaines grand-mères vivaient-elles leurs amours et leurs maternités ? Quand les hommes ont-ils voulu contrôler le ventre de leurs compagnes ? Comment, au fil des siècles, les femmes traversaient-elles l'enfance, l'adolescence, la maturité, la vieillesse ? Quel regard a-t-on porté sur elles ? Où en sommes-nous maintenant, à l'heure paradoxale des fécondations assistées et des crimes dits " d'honneur " ?
 Voici donc le grand roman des femmes. Dans un dialogue audacieux qui fait tomber nombre d'idées reçues, quatre femmes d'exception racontent, sans jargon ni tabous, l'histoire de la condition féminine. Ce qu'elles révèlent ici, c'est ce combat inouï contre l'ordre - moral, social et sexuel - imposé par des générations de monarques, prêtres, pères, maris, une longue marche qui est loin d'être terminée. Aujourd'hui, dans la société, la famille, le couple, l'intimité du lit, sommes-nous aussi dégagés des vieux préjugés que nous le prétendons ? 
 15. ["Mon" histoire des femmes](https://amzn.to/3ki83FX). 
+
 
 
 
