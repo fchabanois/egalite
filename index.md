@@ -142,6 +142,7 @@ Voici donc le grand roman des femmes. Dans un dialogue audacieux qui fait tomber
 
 
 N'importe quel livre qui dresse le portrait d'une femme qui ne vit pas à travers la perception qu'un autre aura sur elle. Quelques exemples : 
+- [Documentaire sur Hedy Lamarr, star et inventeuse de génie](https://www.arte.tv/fr/videos/084681-000-A/star-et-inventeuse-de-genie-hedy-lamarr/)
 - [Moi, Malala](https://amzn.to/2P7IUAY). Celle qui a dit non aux talibans, à 14 ans. Prix Nobel de la paix.
 - [Pas pour les filles](https://amzn.to/2YCG5ev). Parcours d'une joueuse de football professionnel.
 - [Mes combats de femmes](https://amzn.to/35e1soU). Parcours d'une championne de monde de boxe. 
