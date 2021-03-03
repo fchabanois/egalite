@@ -177,6 +177,7 @@ Pour mieux cerner la violence exercée sur les femmes afin de leur intimer le si
 ### Outils
 
 1. [Les mots pour combattre le sexisme](https://amzn.to/2Zyvm6j). Abécédaire de 60 mots de décryptage.
+2. [Ressources Canopé pour les écoles](https://www.reseau-canope.fr/outils-egalite-filles-garcons.html). Une mine d'or.
 
 
 
