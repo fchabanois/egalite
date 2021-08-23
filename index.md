@@ -40,7 +40,9 @@ N'hésitez pas à faire des PR pour enrichir la liste, surtout si vous les avez 
 
 Pour filles et garçons. 
 
-Il y a de plus en plus de livres pour enfants où les filles
+Il y a de plus en plus de livres pour enfants où les filles ne sont pas des potiches.
+
+Pas mal de références sur [1001 héroines](https://1001heroines.fr).
 
 A partir de 3 ans : 
 
@@ -108,6 +110,11 @@ Adultes
 Autres ressources enfants :
 - https://affc.ca/top-10-livres-non-sexistes/
 - https://www.terrafemina.com/article/7-livres-pour-enfants-qui-demolissent-joliment-les-stereotypes-de-genre_a322480/1
+- https://parisianavores.paris/livres-anti-sexistes-enfants-3-ans-4-ans/ 
+- https://uninvincibleete.com/2018/12/clfantigones-15-livres-jeunesse-feministes-a-offrir-a-noel/ 
+- https://misscantine.com/21-libros-feministas-para-regalar-a-ni-os-y-ni-as/
+- https://forums.madmoizelle.com/sujets/liste-doeuvres-feministes-pour-enfant.94411/ (mine d'or ! à creuser)
+- https://www.gibert.com/livres/selections-speciales/feminisme/livres-pour-enfants.html?__cf_chl_jschl_tk__=pmd_BUaBQIJiCa0ZkZGiMC6zWOtS1GPwkIHRjV2Y8hS75Ak-1629759449-0-gqNtZGzNAmWjcnBszQal
 
 
 
