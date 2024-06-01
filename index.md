@@ -44,6 +44,8 @@ Il y a de plus en plus de livres pour enfants où les filles ne sont pas des pot
 
 Pas mal de références sur [1001 héroines](https://1001heroines.fr).
 
+Elise Gravel réalise des affiches très chouettes sur les émotions genrées, le corps, le consentement : https://elisegravel.com/livres/affiches-a-imprimer/. 
+
 A partir de 3 ans : 
 
 1. [La pire des princesses](https://amzn.to/2YyEcQ3). Mignon.
@@ -66,7 +68,6 @@ A partir de 5-6 ans
 1. [Femmes incroyables qui ont changé le monde](https://amzn.to/2PCDRrg). Très prenant tout en étant assez court. Je vous le recommande.
 2. [Vives et vaillantes](https://amzn.to/2t0JGao). Contes à lire aux enfants.
 3. [Histoires du soir pour filles rebelles](https://amzn.to/2sgWGbu). Je ne suis pas fan des histoires qui tiennent sur une seule page pour les enfants. L'intrigue a moins de pêche. Le format couverture dur et un peu "pavé" me parait aussi peu adapté. Pour cette raison, la BD Culottées, initialement adressée aux adultes me parait plus kids friendly. Par contre, ces histoires ont le mérite d'être assez exhaustives en terme de portraits dressés.
-
 
 A partir de 6 ans (bon lecteur.rice)
 
